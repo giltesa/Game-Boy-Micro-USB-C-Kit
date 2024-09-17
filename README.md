@@ -10,7 +10,7 @@ The <strong>Game Boy Micro: USB-C</strong> is a board that allows you to replace
 
 ## Would you like it?
 
-[**GBM**](https://shop.giltesa.com/product/game-boy-micro-usb-c-kit/)
+[**Game Boy Micro: USB-C Kit**](https://shop.giltesa.com/product/game-boy-micro-usb-c-kit/)
 
 
 
