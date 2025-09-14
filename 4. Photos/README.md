@@ -1,0 +1,10 @@
+![GAME-BOY-MICRO-USB-C-Kit](https://raw.githubusercontent.com/giltesa/Game-Boy-Micro-USB-C-Kit/master/4.%20Photos/Game-Boy-Micro-USB-C-v1.0_0.jpg)
+![GAME-BOY-MICRO-USB-C-Kit](https://raw.githubusercontent.com/giltesa/Game-Boy-Micro-USB-C-Kit/master/4.%20Photos/Game-Boy-Micro-USB-C-v1.0_1.jpg)
+![GAME-BOY-MICRO-USB-C-Kit](https://raw.githubusercontent.com/giltesa/Game-Boy-Micro-USB-C-Kit/master/4.%20Photos/Game-Boy-Micro-USB-C-v1.0_2.jpg)
+![GAME-BOY-MICRO-USB-C-Kit](https://raw.githubusercontent.com/giltesa/Game-Boy-Micro-USB-C-Kit/master/4.%20Photos/Game-Boy-Micro-USB-C-v1.0_3.jpg)
+![GAME-BOY-MICRO-USB-C-Kit](https://raw.githubusercontent.com/giltesa/Game-Boy-Micro-USB-C-Kit/master/4.%20Photos/Game-Boy-Micro-USB-C-v1.0_4.jpg)
+
+![GAME-BOY-MICRO-USB-C-Kit](https://raw.githubusercontent.com/giltesa/Game-Boy-Micro-USB-C-Kit/master/4.%20Photos/Game-Boy-Micro-USB-C-v1.1_1.jpg)
+![GAME-BOY-MICRO-USB-C-Kit](https://raw.githubusercontent.com/giltesa/Game-Boy-Micro-USB-C-Kit/master/4.%20Photos/Game-Boy-Micro-USB-C-v1.1_2.jpg)
+![GAME-BOY-MICRO-USB-C-Kit](https://raw.githubusercontent.com/giltesa/Game-Boy-Micro-USB-C-Kit/master/4.%20Photos/Game-Boy-Micro-USB-C-v1.1_3.jpg)
+![GAME-BOY-MICRO-USB-C-Kit](https://raw.githubusercontent.com/giltesa/Game-Boy-Micro-USB-C-Kit/master/4.%20Photos/Game-Boy-Micro-USB-C-v1.1_4.jpg)

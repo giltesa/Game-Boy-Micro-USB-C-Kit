@@ -1,0 +1,1 @@
+The plastic cap is too weak and would have been a single color. In the end, I scrapped the idea, which is why it’s not included.
